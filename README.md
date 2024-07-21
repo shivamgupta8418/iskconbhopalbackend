@@ -2,7 +2,7 @@
 
 Welcome to the **ISKCON Bhopal** repository! 🌟 This space is dedicated to the teachings of **His Divine Grace A.C. Bhaktivedanta Swami Prabhupada**, the revered founder-acharya of the International Society for Krishna Consciousness (ISKCON). Our mission is to spread the divine teachings of Krishna consciousness and offer a sanctuary for spiritual growth and community engagement.
 
-![ISKCON Bhopal](https://example.com/your-image.jpg) <!-- Replace with your image URL -->
+![ISKCON Bhopal](https://www.cooperativa.cl/noticias/site/artic/20150801/imag/foto_0000001320150801125428.jpg) <!-- Replace with your image URL -->
 
 ## About Us
 
