@@ -27,18 +27,18 @@ We warmly invite you to be a part of our vibrant spiritual community. Here’s h
 
 For more information about our temple, programs, and events, please contact us:
 
-- **Address:** [Insert Address Here]
-- **Phone:** [Insert Phone Number Here]
-- **Email:** [Insert Email Address Here]
-- **Website:** [Insert Website URL Here]
+- **Address:** Hare Krishna Land, ISKCON Bhopal, Raisen Road, Patel Nagar, Bhopal, Bhopal, Madhya Pradesh, 462022
+- **Phone:** +91-88155-63358
+- **Email:** iskconbhopal@gmail.com
+- **Website:** https://iskconbhopal.com/
 
 ## Follow Us
 
 Stay connected and updated with our latest news and events:
 
-- **Facebook:** [https://www.facebook.com/iskconbhopal/]
-- **Instagram:** [https://www.instagram.com/iskcon_bhopal/]
-- **Twitter:** [https://x.com/iskconb]
+- **Facebook:** https://www.facebook.com/iskconbhopal/
+- **Instagram:** https://www.instagram.com/iskcon_bhopal/
+- **Twitter:** https://x.com/iskconb
 
 Thank you for your interest in **ISKCON Bhopal**! We look forward to welcoming you to our spiritual family. 🙏
 
