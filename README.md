@@ -36,9 +36,9 @@ For more information about our temple, programs, and events, please contact us:
 
 Stay connected and updated with our latest news and events:
 
-- **Facebook:** [Insert Facebook URL Here]
-- **Instagram:** [Insert Instagram URL Here]
-- **Twitter:** [Insert Twitter URL Here]
+- **Facebook:** [https://www.facebook.com/iskconbhopal/]
+- **Instagram:** [https://www.instagram.com/iskcon_bhopal/]
+- **Twitter:** [https://x.com/iskconb]
 
 Thank you for your interest in **ISKCON Bhopal**! We look forward to welcoming you to our spiritual family. 🙏
 
